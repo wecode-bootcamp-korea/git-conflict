@@ -1,1 +1,1 @@
-Hello I'm Yeonuk
+Bye I'm Yeonuk
