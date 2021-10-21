@@ -1,1 +1,1 @@
-Hello I'm Git Conflict :)
+Hello I'm 26th frontend :)
