@@ -1,1 +1,1 @@
-Hello I'm shinyeong :)
+Hello I'm 연습하세영이야 :)
