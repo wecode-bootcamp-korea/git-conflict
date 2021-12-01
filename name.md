@@ -1,1 +1,1 @@
-Hello I'm shinyeong :)
+Hello I'm Jongmin :)
