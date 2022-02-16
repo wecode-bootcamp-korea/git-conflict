@@ -1,1 +1,1 @@
-Hello I'm Yoojung
+Hello I'm Shinyeong~~!
