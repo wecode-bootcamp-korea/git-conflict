@@ -1,1 +1,1 @@
-Hello I'm Hyojeong~~!
+Hello I'm Hyojeong~
