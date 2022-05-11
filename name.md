@@ -1,1 +1,1 @@
-Hello I'm Seul gi!
+Hello I'm Seulgi!
