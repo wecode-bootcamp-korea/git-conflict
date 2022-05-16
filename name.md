@@ -1,1 +1,1 @@
-Hello I'm seulgi!!
+Hello I'm Seulgi Park!!
