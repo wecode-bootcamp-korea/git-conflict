@@ -1,3 +1,3 @@
-Hello I'm Suhyeon!!
+Hello I'm Soheon!!
 
 Nice to meet you!
