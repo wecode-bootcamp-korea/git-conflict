@@ -1,4 +1,3 @@
-Hello I'm Soheon!!
+hello my name is kwnahee
 
-
-Nice to meet you!
+i glad meet you
