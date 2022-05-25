@@ -1,4 +1,4 @@
-Hello I'm Soheon!!
+Sang Bin Yim
 
 <<<<<<< HEAD
 Nice to meet you!
