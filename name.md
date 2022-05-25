@@ -1,4 +1,3 @@
-Hello I'm Soheon!!
+Hello I'm TaeHyeon :)
 
-
-Nice to meet you!
+Have a Nice day!!
