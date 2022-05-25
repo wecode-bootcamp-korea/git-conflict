@@ -1,2 +1,4 @@
+Hello I'm Soheon!!
+Hello I'm Mingyu!!
 
-Hello I'm mingyu!!
+Nice to meet you!
