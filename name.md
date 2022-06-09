@@ -1,4 +1,3 @@
-Hello I'm Soheon!!
-
+Hello I'm youjinku!!
 
 Nice to meet you!
