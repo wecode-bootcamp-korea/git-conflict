@@ -1,4 +1,3 @@
-Hello I'm Soheon!!
-
+Hello I'm EunKyeong!!
 
 Nice to meet you!
