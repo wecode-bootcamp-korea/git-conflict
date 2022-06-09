@@ -1,4 +1,3 @@
-Hello I'm Soheon!!
-
+Hello I'm Bohyun!
 
 Nice to meet you!
