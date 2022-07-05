@@ -1,3 +1,3 @@
-Hello I'm CODE!!
+Hello I'm Noh jeongeun!!
 
 Nice to meet you!
