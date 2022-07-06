@@ -1,3 +1,3 @@
-Hello I'm CODE!!
+Hello I'm Eokhwa JEONG!!
 
 Nice to meet you!
