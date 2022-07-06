@@ -1,3 +1,3 @@
-Hello I'm CODE!!
+Hello I'm Minjee Son!!
 
 Nice to meet you!
