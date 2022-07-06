@@ -1,3 +1,3 @@
-Hello I'm hanshinung!!
+Hello I'm seongeun!!!
 
 Nice to meet you!
